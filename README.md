@@ -11,7 +11,7 @@
 
 ## 🏅 Achievements
 
-- Was at Google offices at the age of 14!
+- Presented at Google offices at the age of 14!
 
 ### Languages
 
